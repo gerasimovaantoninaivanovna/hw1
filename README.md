@@ -112,7 +112,7 @@
 #### Запомните!
 ##### Там каждый сам за себя.
 
-![](https://github.com/gerasimovaantoninaivanovna/hw1/blob/master/l_8a958f09.jpg11111111.jpg "")
+![](https://github.com/gerasimovaantoninaivanovna/hw1/blob/master/Funny%20Cats%20Fight%20Wallpaper.jpg "")
 
 Никакой помощи, отдачи и поддержки от незнакомых людей, если вы попали в беду, - не ждите.
 
